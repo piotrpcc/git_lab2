@@ -4,8 +4,12 @@ Tutaj ciąg dalszy
 
 
 i coś jeszcze
-
-Autorzy: piotrpcc
+dsfjhdsjhd gdhjgdhgkjd
 
 jkjdksajdksajdksajd
+
+dskj jdsghjfdhg 
+
+dskg jfd
+Autorzy: piotrpcc, PiotrPrzybylak
 
