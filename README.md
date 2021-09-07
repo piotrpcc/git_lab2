@@ -5,4 +5,4 @@ Tutaj ciąg dalszy
 
 i coś jeszcze
 
-Autorzy: PiotrPrzybylak
+Autorzy: piotrpcc, PiotrPrzybylak
